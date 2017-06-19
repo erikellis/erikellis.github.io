@@ -1,2 +1,0 @@
-# erikellis.github.io
-Blog
